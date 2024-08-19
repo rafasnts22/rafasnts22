@@ -8,3 +8,6 @@ Meu nome é Rafaela
 
   ## Entre em contato utilizando o e-mail📧
   00001142616289SP@al.educacao.sp.gov.br
+
+
+![](https://tenor.com/pt-BR/view/happy-gif-27563888)
